@@ -1,4 +1,4 @@
-## Welcome to Clothes for You!
+## Welcome to message and chat clothing!
 
 Your technology savvy clothing brand!
 
